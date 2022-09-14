@@ -1,7 +1,7 @@
 Programmer and shi
 ------------------
 
-i've been in that shit for moment you know what am saying.
+i've been in This Website for a moment So i dont know what am doing.
 
 ### Skills
 
