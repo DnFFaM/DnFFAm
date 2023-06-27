@@ -1,7 +1,5 @@
-Programmer and shi
+Programmer 
 ------------------
-
-i've been in This Website for a moment So i dont know what am doing.
 
 ### Skills
 
